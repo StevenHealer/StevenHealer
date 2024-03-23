@@ -1,5 +1,5 @@
-Can we have a call now for discussing about your project?
-I am waiting you in google meeting.
-This is the address: https://meet.google.com/fsr-vfiw-zrd
-
+Thanks for visiting my github.
+I think it will be OK to discuss about your project via call.
+So please create google meeting or zoom meeting and share the link.
+This will be important call for completing this project.
 Thanks
