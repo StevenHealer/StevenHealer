@@ -1,3 +1,2 @@
-https://meet.google.com/rxu-hkgm-ghr
-
-I wanna have a call with you.
+Skype: live:.cid.1ec8c47eb968be2e
+Telegram: https://t.me/fullstackengineer7
